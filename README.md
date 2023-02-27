@@ -1,6 +1,5 @@
 
-# Influencia del entorno en la compra de juguetería erótica
-
+# The influence of the environment on the purchase of erotic toys
 
 Un analisis sobre las ventas de una tienda online de juguetería para adultos que vende en Europa, México y Chile.
 
